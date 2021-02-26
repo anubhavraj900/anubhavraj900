@@ -4,12 +4,12 @@
 - 📫 How to reach me **Anubhavrajput900@gmail.com**
 
 
-- ✔  Learning everything that fascinates me.
+- ✔  Learning everything that fascinates me
 - 💖 Love coding and developing stuffs🧬
 - ✨ I use Coursera, Udemy, Pluralsight and Youtube to learn stuffs💻
-- 🤞 Read books📚 (not much).
-- 🏓 I love to play sports 🏸🏏🎲♟.
-- 🎈 Fun fact : I like funny youtube videos watching👀.
+- 🤞 Read books📚 (not much)
+- 🏓 I love to play sports 🏸🏏🎲♟
+- 🎈 Fun fact : I like funny youtube videos watching👀
 
 
 
