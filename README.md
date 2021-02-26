@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Anubhav Rajput</h1>
-<h3 align="center">A passionate Software developer from India</h3>
+<h3 align="center">I'm a Software developer and avid learner.</h3>
 
 - 📫 How to reach me **Anubhavrajput900@gmail.com**
 
